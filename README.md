@@ -2,7 +2,7 @@
 
 - 🔭 I’m just a ordinary person loves create and learn something
 - 💬 Ask me about computers 
-- 📫 How to reach me: (Maybe one day)
+- 📫 How to reach me: (not now)
 - 🖥️
 
 
